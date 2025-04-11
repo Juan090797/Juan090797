@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 👋 Hi, I’m Juan Marquina @Juan090797
+- 👀 I’m interested in Coding, Teaching, Series, Movies!
+- 🌱 I’m currently learning a lot of stuff
